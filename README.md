@@ -10,8 +10,8 @@ Final Thoughts- Here's the thing about Uncharted, the final sum is far greater t
 
 Aspects that should have been tested-
 
-1. My main complaint would have to be the camera angles are sometimes dampening to the gameplay because you have to control Nathan and make him jump certain ways where the camera will not move too.
+1. Camera Angles- My main complaint would have to be the camera angles are sometimes dampening to the gameplay because you have to control Nathan and make him jump certain ways where the camera will not move too. the forced camera angles sometimes put you at a disadvantage and lead to more than a few untimely and frustrating falls to your death.
 
-2. Also another complaint i had was at times the controls were touchy, as an example at times i would try and find cover by pushing the square button on the PS3 controller and instead of going where i intended to go Drake would get into the line of fire or when trying to make him jump from one position to another he would drop down onto a ledge instead of going where i intended to but that is just a slight oversight.
+2. Contorller Issues- At times the controls were touchy, as an example at times i would try and find cover by pushing the square button on the PS3 controller and instead of going where i intended to go Drake would get into the line of fire or when trying to make him jump from one position to another he would drop down onto a ledge instead of going where i intended to but that is just a slight oversight.
 
-3.
+3. Jump Problems- Jumping from ledge to ledge or pillar to pillar is extremely unsatisfying. There's virtually no way to die. Unlike in Tomb Raider (the only thing comparable to the Uncharted series besides maybe Crash Bandicoot) where you have to accurately time and position your jumps or you can die. There's never a moment in the game when you're hopping from ledge to ledge that Nate will fall off and you can relax. There's no "tension" associated with jumping/climbing in this game because it's foolproof. I love Uncharted, I just wish it wouldn't baby players so much.
