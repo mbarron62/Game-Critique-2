@@ -9,4 +9,9 @@ Designer- Naughty Dog, LLC (formerly JAM Software, Inc) is an American first-par
 Final Thoughts- Here's the thing about Uncharted, the final sum is far greater than the individual parts. Maybe you don't dig the combat or maybe the pop-in gets you down, but the overall package of an endearing story, outstanding score, great performances and fun gameplay should put this title on the top of your holiday wishlist. Say what you will about the PS3, but Uncharted isn't just a standout for Sony. It's a standout for gaming as a whole.
 
 Aspects that should have been tested-
+
 1. My main complaint would have to be the camera angles are sometimes dampening to the gameplay because you have to control Nathan and make him jump certain ways where the camera will not move too.
+
+2. Also another complaint i had was at times the controls were touchy, as an example at times i would try and find cover by pushing the square button on the PS3 controller and instead of going where i intended to go Drake would get into the line of fire or when trying to make him jump from one position to another he would drop down onto a ledge instead of going where i intended to but that is just a slight oversight.
+
+3.
