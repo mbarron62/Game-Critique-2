@@ -1,3 +1,11 @@
 # Game-Critique-2
 
-Title - Uncharted
+Title- Uncharted
+
+Plot- 
+
+Designer- 
+
+Final Thoughts- 
+
+
